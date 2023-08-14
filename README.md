@@ -1,13 +1,1 @@
-# xastre-atv1
-xastre atv 2
-
-a
-a
-a
-a
-a
-a
-a
-a
-
-sim
+Elon musk 😍 uma vez disso 🗣️ "eu quero GOZ@R 💦🔥" AAAUUUUUU 🐺 SECRETÁRIA 👩‍💻 QUE TRABALHA 👩‍🏫 O DIA INTEIRO 🌅 COMIGO
