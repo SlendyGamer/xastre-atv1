@@ -2,5 +2,6 @@
 
 int main()
 {
-  return 1;
+  int soma = 0;
+  return soma;
 }
